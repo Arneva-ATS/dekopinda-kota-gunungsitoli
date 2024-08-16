@@ -1,1 +1,1 @@
-# dekopinda-kota-gunungsitoli
+# dekopinda-karanganyar
